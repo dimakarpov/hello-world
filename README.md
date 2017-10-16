@@ -10,4 +10,6 @@ My technological specialties are .NET, MS-SQL and Microsoft Azure. Including web
 
 My managment specialties are project and product management and dev team leadership.
 
+Edit: I enjoy technology, development and team work and collaboration.
+
 Karpov Dmitriy
